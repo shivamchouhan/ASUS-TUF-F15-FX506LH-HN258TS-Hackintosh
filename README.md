@@ -1,0 +1,1 @@
+# Hakintosh-ASUS-TUF-F15-FX506LH-HN258TS
